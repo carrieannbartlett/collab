@@ -1,3 +1,5 @@
+![Alt text](frog.jfif)
+
 Once upon a time, in the lush and mysterious Amazon rainforest, there lived a creature unlike any other: a giant killer frog named Kermit. Despite his formidable appearance, with bulging muscles and a menacing croak that could shake the ground, Kermit had a surprisingly refined taste for the finer things in life, particularly coffee.
 
 Kermit had grown tired of the bland, murky waters of the swamp and yearned for something more invigorating to start his day. He had heard tales from the chatty parrots and gossiping monkeys about a legendary brew known as "Jungle Java," rumored to be the finest coffee in all the rainforest. Determined to taste this elixir for himself, Kermit set off on a quest through the dense foliage, his massive webbed feet leaving deep imprints in the earth.
