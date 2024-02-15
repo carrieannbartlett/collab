@@ -5,3 +5,4 @@ They're trying to understand conflicts.
 They're beginning to see the bigger picture.
 Creating and merging branches has been practised and understood.
 Now they're partying because they finally get it!
+So now they're practising reviewing.
