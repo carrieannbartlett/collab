@@ -9,3 +9,4 @@ So now they're practising reviewing.
 But they're stuck again! What a mess!
 They're probably going to get some more practice at conflicts soon...but they're ready for it!
 They fixed the conflict - woohoo!
+Now they're onto bigger and better things.
