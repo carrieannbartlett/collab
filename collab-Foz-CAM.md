@@ -6,3 +6,4 @@ They're beginning to see the bigger picture.
 Creating and merging branches has been practised and understood.
 Now they're partying because they finally get it!
 So now they're practising reviewing.
+They're probably going to get some more practice at conflicts soon...
