@@ -1,0 +1,2 @@
+in the Kingdom of Veridian,there existed a longstanding feud between two noble families, the evergreens and the crimson Roses.Their animosity dated back generation,fueled by old grudges and bitter rivalries.
+Amidst this backdrop of hospitility, there were two individuals who epitomizsed the enmity between their families. Jen Envergreen, with her fiery red hair and piercing brown eyes, was the daugther of the Evegreen duke. She was known for her determination and unwavering loyality to her family's legacy.
