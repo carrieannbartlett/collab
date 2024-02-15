@@ -21,4 +21,4 @@ Freda eagerly took a sip of the Jungle Java, her taste buds exploding with delig
 
 And so, the giant killer frog who had once struck fear into the hearts of the rainforest's inhabitants found a new purpose: spreading joy, one delicious glass of beer at a time.
 
-Until she realised she was drinking Fosters all along
+Until he realised he was drinking decaf all along, which was very disappointing.
