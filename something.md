@@ -19,3 +19,5 @@ Sasha chuckled, handing Kermit the steaming cup. "Well, you've come to the right
 Kermit eagerly took a sip of the Jungle Java, his taste buds exploding with delight at the rich, complex flavors. It was everything he had hoped for and more. From that day forth, Kermit became a regular at Sasha's café, trading tales of his adventures in the jungle in exchange for another cup of his beloved coffee.
 
 And so, the giant killer frog who had once struck fear into the hearts of the rainforest's inhabitants found a new purpose: spreading joy, one delicious cup of coffee at a time.
+
+Any old shit.
