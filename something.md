@@ -21,3 +21,4 @@ Kermit eagerly took a sip of the Jungle Java, his taste buds exploding with deli
 And so, the giant killer frog who had once struck fear into the hearts of the rainforest's inhabitants found a new purpose: spreading joy, one delicious cup of coffee at a time.
 
 Any old shit.
+
