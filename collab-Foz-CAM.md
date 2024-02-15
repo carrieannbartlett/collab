@@ -12,3 +12,4 @@ They fixed the conflict - woohoo!
 Now they're onto bigger and better things.
 Are they sure? YES THEY ARE!
 Conflict resolution is their super power.
+Their boss notices their newfound super power, INSTANT PROMOTION!
