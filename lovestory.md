@@ -1,0 +1,1 @@
+in the Kingdom of Veridian,there existed a longstanding feud between two noble families, the evergreens and the crimson Roses.Their animosity dated back generation,fueled by old grudges and bitter rivalries.
